@@ -1,1 +1,1 @@
-https://docs.google.com/document/d/1zW9aek3jok6laF_DIHJaTOxYzpg-UxViAgRyy1kF6oA/edit?usp=drivesd# Digital-portfolio-
+https://pallavi2202.github.io/Digital-portfolio-/ Digital-portfolio-
